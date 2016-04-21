@@ -1,0 +1,1 @@
+# Tip_sozluk_tasarim
